@@ -1,6 +1,6 @@
-<sup>please in mind any image is a place holder and will be replaced with my own artworks</sup> 
+<sup>please in mind any image is a place holder and will be replaced with my own artworks</sup>  ──────────────────────  ᶻ 𝗓 𐰁  
 ## <img alt="image" src="https://i.pinimg.com/736x/4e/1d/4a/4e1d4aa58e0909c7f7e799ce7f9afa6c.jpg" />
-
+═══════𓊈 **weston ꩜** 𓊉═══════ ᯓ★₍^. .^₎⟆  <sup>he it pronouns</sup> ═════════════════════
 <!--
 **limpdeftmet/limpdeftmet** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
