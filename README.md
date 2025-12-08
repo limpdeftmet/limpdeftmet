@@ -1,6 +1,5 @@
 <sup>please in mind any image is a place holder and will be replaced with my own artworks</sup>  ──────────────────────  ᶻ 𝗓 𐰁  
- <img alt="image" src="<img width="1235" height="369" alt="image" src="https://github.com/user-attachments/assets/2281a5e5-fbee-4ccd-aaa4-480bdd664f1f" />
-" />
+ <img width="1235" height="369" alt="image" src="https://github.com/user-attachments/assets/2281a5e5-fbee-4ccd-aaa4-480bdd664f1f" />
 
 # **about me** ᶻ 𝗓 𐰁
 
