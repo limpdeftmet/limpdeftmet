@@ -20,7 +20,6 @@
 
 ## **fandoms::** <sup>disventure camp, tdi, dandys world, south park any adult cartoon, SINJIN DROWNING, etc</sup>
 
-
 ### **characters** <sub> <ins> **shrimpo, astro, rodger, james** </ins> </sub> ᶻ 𝗓 𐰁 <sub> <sub> hunter, ally, j*ke, alec, goob, abel, emily, aiden </sub>  ═════════════════════════════════════  ᶻ 𝗓 𐰁 
 
 ### **kins** <sub> <ins> **mike, mal, astro** </ins> ᶻ 𝗓 𐰁  </sub>  <sub> satoko, dandy (lightly)  ══════════════════════════════════  ᶻ 𝗓 𐰁 
