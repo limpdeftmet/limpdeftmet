@@ -24,7 +24,7 @@
 ### **kins** <sub> <ins> **mike, mal, astro** </ins> ᶻ 𝗓 𐰁  </sub>  <sub> satoko, dandy (lightly)  pls talk to me about my interests!!! <333  ════════════════  ᶻ 𝗓 𐰁 
 
 ### **people** <sub> noah!!!, yuri, soapy and any of my online pt friends, + WESTON AND KAYLNN KOURRRRRRRYYYYYYYYY </sub>
-<sup>═══════𓊈 extra info 𓊉═════ ᯓ★₍^. .^₎⟆  <sup> lalalaa </sup> ══════════════════════════════════════════════════════════════════════════════════════</sup>
+<sup>═══════𓊈 extra info 𓊉═════ ᯓ★₍^. .^₎⟆  <sup> lalalaa </sup> ══════════════════════════════════════════════════════════════════</sup>
 
 ## im a roleplayer and host dandys world roleplayers with my friends at docks!!!  ( <sub> we host on weekends </sub> ) im an artist, animator and looking for friends :3 
 <!--
