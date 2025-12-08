@@ -16,7 +16,9 @@
 **toxic nonsharing yumes, number one fans or irls** <sub> non toxic ones are fine </sub>  
 
 
-## my favorite things!!   **fandoms::** <sup>disventure camp, tdi, dandys world, south park any adult cartoon, SINJIN DROWNING, etc</sup>
+## my favorite things!!  
+
+## **fandoms::** <sup>disventure camp, tdi, dandys world, south park any adult cartoon, SINJIN DROWNING, etc</sup>
 
 
 ### **characters** <sub> <ins> **shrimpo, astro, rodger, james** </ins> </sub> ᶻ 𝗓 𐰁 <sub> <sub> hunter, ally, j*ke, alec, goob, abel, emily, aiden </sub>  ═════════════════════════════════════  ᶻ 𝗓 𐰁 
