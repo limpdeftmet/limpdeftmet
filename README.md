@@ -22,7 +22,7 @@
 
 ### **characters** <sub> <ins> **shrimpo, astro,dandy,rodger, james** </ins> </sub> ᶻ 𝗓 𐰁 <sub> <sub> hunter, ally, j*ke, alec, goob, abel, emily, aiden </sub>  ════════════════════════════  ᶻ 𝗓 𐰁 
 
-### **kins** <sub> <ins> **mike, mal, astro** </ins> ᶻ 𝗓 𐰁  </sub>  <sub> hunter, idk lol  ══════════════════════════════════  ᶻ 𝗓 𐰁 
+### **kins** <sub> <ins> **mike, mal, astro** </ins> ᶻ 𝗓 𐰁  </sub>  <sub> hunter (dc) ══════════════════════════════════  ᶻ 𝗓 𐰁 
 
 pls talk to me about my interests!!! <333  
 
