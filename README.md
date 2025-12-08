@@ -21,7 +21,9 @@
 
 ### **characters** <sub> <ins> **shrimpo, astro, rodger, james** </ins> </sub> ᶻ 𝗓 𐰁 <sub> <sub> hunter, ally, j*ke, alec, goob, abel, emily, aiden </sub>  ═════════════════════════════════════  ᶻ 𝗓 𐰁 
 
-### **kins** <sub> <ins> **mike, mal, astro** </ins> ᶻ 𝗓 𐰁  </sub>  <sub> satoko, dandy (lightly)  pls talk to me about my interests!!! <333  ════════════════  ᶻ 𝗓 𐰁 
+### **kins** <sub> <ins> **mike, mal, astro** </ins> ᶻ 𝗓 𐰁  </sub>  <sub> satoko, dandy (lightly)  ══════════════════════════════════  ᶻ 𝗓 𐰁 
+
+pls talk to me about my interests!!! <333  
 
 ### **people** <sub> noah!!!, yuri, soapy and any of my online pt friends, + WESTON AND KAYLNN KOURRRRRRRYYYYYYYYY </sub>
 <sup>═══════𓊈 extra info 𓊉═════ ᯓ★₍^. .^₎⟆  <sup> lalalaa </sup> ══════════════════════════════════════════════════════════════════</sup>
