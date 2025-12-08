@@ -1,4 +1,4 @@
--# please keep in mind any image is a place holder and will be replaced with my own artworks
+<sup>please in mind any image is a place holder and will be replaced with my own artworks</sup> 
 ## <img alt="image" src="https://i.pinimg.com/736x/4e/1d/4a/4e1d4aa58e0909c7f7e799ce7f9afa6c.jpg" />
 
 <!--
