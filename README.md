@@ -3,7 +3,7 @@
 
 # **about me** ᶻ 𝗓 𐰁
 
-<sup>═══════𓊈 **weston ꩜** 𓊉═════ ᯓ★₍^. .^₎⟆  <sup>he it pronouns</sup> ════════════════════════════════════════════════════════════════════════════════</sup>
+<sup>═══════𓊈 **weston ꩜** 𓊉═════ ᯓ★₍^. .^₎⟆  <sup>he it pronouns</sup> ═══════════════════════════════════════════════════════════════════</sup>
 
 
 ## i block and hide freely, if i hid or blocked u its for a GOOD reason ⏾⋆.˚ c+h, boop or int!!!! ✓
