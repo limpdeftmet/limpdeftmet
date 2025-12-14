@@ -6,7 +6,7 @@
 <sup>═══════𓊈 **weston ꩜** 𓊉═════ ᯓ★₍^. .^₎⟆  <sup>he it pronouns</sup> ═══════════════════════════════════════════════════════════════════</sup>
 
 
-## i block and hide freely, if i hid or blocked u its for a GOOD reason ⏾⋆.˚ c+h, boop or int!!!! ✓
+## i block and hide freely, if i hid or blocked u its for a GOOD reason NO HEAVY INSPO OF MY SKINS PLS ⏾⋆.˚ c+h, boop or int!!!! ✓
 **dni**  <sub> underlined is NO exceptions... bold is dniuf </sub>
 
 
@@ -29,7 +29,7 @@ pls talk to me about my interests!!! <333
 ### **people** <sub> noah!!!, yuri, soapy and any of my online pt friends, + WESTON AND KAYLNN KOURRRRRRRYYYYYYYYY </sub>
 <sup>═══════𓊈 extra info 𓊉═════ ᯓ★₍^. .^₎⟆  <sup> lalalaa </sup> ══════════════════════════════════════════════════════════════════</sup>
 
-## im a roleplayer and host dandys world roleplayers with my friends at docks!!!  ( <sub> we host on weekends </sub> ) im an artist, animator and looking for friends :3 
+## im a roleplayer and host dandys world roleplays with my friends at docks!!!  ( <sub> we host on weekends </sub> ) im an artist, animator and looking for friends :3 
 <!--
 **limpdeftmet/limpdeftmet** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
