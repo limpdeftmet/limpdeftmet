@@ -1,7 +1,6 @@
 <h6 align="center">dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit </h6>
 <p align="center">
 <img width="auto" height="180" alt="<img width="1230" height="227" alt="image" src="https://github.com/user-attachments/assets/d6316f86-e6ec-4e78-aab7-c79011eae03e" />
-" />
 </p>
 
 <p align="center">
