@@ -8,21 +8,20 @@
 <img width="290" height="90" alt="<img width="1848" height="389" alt="image" src="https://github.com/user-attachments/assets/62016f9c-1dbc-43e9-9b36-10ca7ec5522f" />
 
 ##### ⋆｡°✩
-<h6 align="center"> under 16 int w caution! ::::) </h6>
+<h6 align="center"> under 16 int w caution! ::::) </h6> 
 <h6 align="center"> 
-<details><summary> dni </summary> 
+<details><summary> dni ㄨ </summary> 
 dark/proshippers; kyman shippers; basic dni </summary> </details> 
-
  <p align="center">
 <img width="100" height="100" alt="<img width="1230" height="227" alt="<img width="1848" height="588" alt="<img width="864" height="864" alt="image" src="https://github.com/user-attachments/assets/a9823da1-73df-491e-9389-7a139ac3fe36" />
 
 </p>
 
 <h6 align="center"> 
-<details><summary> interests </summary> 
+<details><summary> interests 𓏲✩ </summary> 
 south park; invincible; dw (lightly); disventure camp; tdi; athf; most adult cartoons!</summary> </details>
 </h6>
-
+<h5 align="right"> ᯓ★ </h5>
 
 <!--
 **limpdeftmet/limpdeftmet** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
