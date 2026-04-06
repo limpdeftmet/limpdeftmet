@@ -17,7 +17,7 @@
 <details><summary> dni ㄨ </summary> ⋆˚࿔
 dark/proshippers; kyman shippers; basic dni </summary> </details> 
  <p align="center">
-<img width="300" height="180" alt="<img width="1230" height="227" alt="<img width="1848" height="588" alt="<img width="864" height="864" alt="image" src="https://github.com/user-attachments/assets/a9823da1-73df-491e-9389-7a139ac3fe36" /> ⋆˚꩜｡
+<img width="380" height="280" alt="<img width="1230" height="227" alt="<img width="1848" height="588" alt="<img width="864" height="864" alt="image" src="https://github.com/user-attachments/assets/a9823da1-73df-491e-9389-7a139ac3fe36" /> ⋆˚꩜｡
 
 </p>
 
