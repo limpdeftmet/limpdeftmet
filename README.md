@@ -9,7 +9,6 @@
 
 ##### ⋆｡°✩
 <h6 align="center"> under 16 int w caution! ::::) </h6>
-<h5 align= "right"> ⭑.ᐟ </h5>
 <h6 align="center"> 
 <details><summary> dni </summary> 
 dark/proshippers; kyman shippers; basic dni </summary> </details> 
