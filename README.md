@@ -1,7 +1,7 @@
 <h6 align="center">dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit </h6>
 <p align="center">
-ᯓ <img width="auto" height="180" alt="<img width="1230" height="227" alt="<img width="1848" height="588" alt="image" src="https://github.com/user-attachments/assets/332478cf-d9d3-4a8d-b7af-0a36d0236b78" /> 
-
+ᯓ <img width="400" height="180" alt="<img width="1230" height="227" alt="<img width="1848" height="588" alt="<img width="1152" height="864" alt="image" src="https://github.com/user-attachments/assets/828e0c86-b9d6-4a1d-b656-c1c1e967ba6f" />
+" ִ ࣪𖤐.ᐟ
 </p>
 
 <p align="center">
