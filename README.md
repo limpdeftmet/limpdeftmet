@@ -23,7 +23,7 @@ dark/proshippers; kyman shippers; basic dni </summary> </details>
 
 <h6 align="center"> 
 <details><summary> interests 𓏲✩ </summary> 
-south park; invincible; dw (lightly); disventure camp; tdi; athf; most adult cartoons!</summary> </details>
+south park; invincible; dw (lightly); disventure camp; tdi; athf; moral orel; word girl; mcr; fallout boy; limpbizkit; most adult cartoons!</summary> </details>
 </h6>
 <!--
 **limpdeftmet/limpdeftmet** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
