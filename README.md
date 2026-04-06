@@ -1,10 +1,16 @@
-###### dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit
+<p align="center">
+dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit
+</p>
 
-
+<p align="center">
 <img width="auto" height="180" alt="Screenshot 2026-04-05 221340" src="https://github.com/user-attachments/assets/e8de7b04-d9a0-4858-aa0f-08679a6c42fc" />
+</p>
 
-<center> ❽teen ‿୨ Weston ୧‿ </center>
- 
+<p align="center">
+❽teen ‿Weston ‿
+</p>
+
+
 <!--
 **limpdeftmet/limpdeftmet** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
