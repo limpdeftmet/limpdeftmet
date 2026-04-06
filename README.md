@@ -1,4 +1,4 @@
-<h6 align="center">dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit </h6>
+<h6 align="center">dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit </h6>
 <p align="center">
 <img width="auto" height="180" alt="Screenshot 2026-04-05 221340" src="https://github.com/user-attachments/assets/e8de7b04-d9a0-4858-aa0f-08679a6c42fc" />
 </p>
