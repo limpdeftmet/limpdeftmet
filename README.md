@@ -1,11 +1,11 @@
 <h6 align="center">dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit </h6>
 <p align="center">
-<img width="auto" height="180" alt="<img width="1230" height="227" alt="<img width="1848" height="588" alt="image" src="https://github.com/user-attachments/assets/332478cf-d9d3-4a8d-b7af-0a36d0236b78" />
+ᯓ <img width="auto" height="180" alt="<img width="1230" height="227" alt="<img width="1848" height="588" alt="image" src="https://github.com/user-attachments/assets/332478cf-d9d3-4a8d-b7af-0a36d0236b78" /> 
 
 </p>
 
 <p align="center">
-<img width="290" height="90" alt="<img width="1848" height="389" alt="image" src="https://github.com/user-attachments/assets/62016f9c-1dbc-43e9-9b36-10ca7ec5522f" />
+ <img width="290" height="90" alt="<img width="1848" height="389" alt="image" src="https://github.com/user-attachments/assets/62016f9c-1dbc-43e9-9b36-10ca7ec5522f" /> .✦ ݁˖
 
  <p align="center">
 <img width="550" height="90" alt="<img width="180" height="227" alt="<img width="1848" height="588" alt="<img width="382" height="12" alt="image" src="https://github.com/user-attachments/assets/d1f1c150-a61d-4086-b0c5-4692a51d1216" />
@@ -14,7 +14,7 @@
 
 <h6 align="center"> under 16 int w caution! ::::) </h6> 
 <h6 align="center"> 
-<details><summary> dni ㄨ </summary> 
+<details><summary> dni ㄨ </summary> ⋆˚࿔
 dark/proshippers; kyman shippers; basic dni </summary> </details> 
  <p align="center">
 <img width="300" height="180" alt="<img width="1230" height="227" alt="<img width="1848" height="588" alt="<img width="864" height="864" alt="image" src="https://github.com/user-attachments/assets/a9823da1-73df-491e-9389-7a139ac3fe36" /> ⋆˚꩜｡
