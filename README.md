@@ -9,13 +9,15 @@
 
 ##### ⋆｡°✩
 <h6 align="center"> under 16 int w caution! ::::) </h6>
-
-<p align="center">
-<img width="auto" height="180" alt="<img width="1848" height="389" alt="<img width="350" height="11" alt="image" src="https://github.com/user-attachments/assets/ca578364-38e8-4b2c-a525-77c8e6c8acf6" />
 <h5 align= "right"> ⭑.ᐟ </h5>
 <h6 align="center"> 
 <details><summary> dni </summary> 
 dark/proshippers; kyman shippers; basic dni </summary> </details> 
+
+ <p align="center">
+<img width="100" height="100" alt="<img width="1230" height="227" alt="<img width="1848" height="588" alt="<img width="864" height="864" alt="image" src="https://github.com/user-attachments/assets/a9823da1-73df-491e-9389-7a139ac3fe36" />
+
+</p>
 
 <h6 align="center"> 
 <details><summary> interests </summary> 
