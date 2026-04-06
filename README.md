@@ -1,10 +1,12 @@
 <h6 align="center">dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit </h6>
 <p align="center">
-<img width="auto" height="180" alt="Screenshot 2026-04-05 221340" src="https://github.com/user-attachments/assets/e8de7b04-d9a0-4858-aa0f-08679a6c42fc" />
+<img width="auto" height="180" alt="<img width="1230" height="227" alt="image" src="https://github.com/user-attachments/assets/d6316f86-e6ec-4e78-aab7-c79011eae03e" />
+" />
 </p>
 
 <p align="center">
-❽teen ‿Weston ‿
+<img width="270" height="180" alt="<img width="1848" height="389" alt="image" src="https://github.com/user-attachments/assets/62016f9c-1dbc-43e9-9b36-10ca7ec5522f" />
+" />
 </p>
 
 
