@@ -13,18 +13,18 @@
 </p>
 
 <h6 align="center"> under 16 int w caution! C+H int freely 4 the most p8rt ::::) </h6> 
-<h6 align="center"> 
+<h5 align="center"> 
 <details><summary> dni ㄨ </summary> ⋆˚࿔
-dark/proshippers; kyman shippers; basic dni </summary> </details> 
+dark/proshippers; kyman shippers; basic dni </summary> </details> </h5>
  <p align="center">
 <img width="380" height="180" alt="<img width="1230" height="227" alt="<img width="1848" height="588" alt="<img width="864" height="864" alt="image" src="https://github.com/user-attachments/assets/a9823da1-73df-491e-9389-7a139ac3fe36" /> ⋆˚꩜｡
 
 </p>
 
-<h6 align="center"> 
+<h5 align="center"> 
 <details><summary> interests 𓏲✩ </summary> 
 south park; invincible; dw (lightly); disventure camp; tdi; athf; moral orel; word girl; mcr; fallout boy; limpbizkit; most adult cartoons!</summary> </details>
-</h6>
+</h5>
 
 ${\color{black} ........................................... }$ [atabook!!!](https://limpdeftmet.atabook.org/)   ${\color{lightskyblue} 𖹭𖹭𖹭 }$ [@fairypaws](https://github.com/fairypaws)
 
