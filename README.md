@@ -12,7 +12,7 @@
 
 </p>
 
-<h6 align="center"> under 16 int w caution! ::::) </h6> 
+<h6 align="center"> under 16 int w caution! C+H int freely 4 the most p8rt ::::) </h6> 
 <h6 align="center"> 
 <details><summary> dni ㄨ </summary> ⋆˚࿔
 dark/proshippers; kyman shippers; basic dni </summary> </details> 
