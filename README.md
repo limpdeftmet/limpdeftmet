@@ -1,6 +1,7 @@
-<h6 align="center">dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit </h6>
+<h6 align="center">dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit dirty rotten bizkit </h6>
 <p align="center">
-<img width="auto" height="180" alt="<img width="1230" height="227" alt="image" src="https://github.com/user-attachments/assets/d6316f86-e6ec-4e78-aab7-c79011eae03e" />
+<img width="400" height="160" alt="<img width="1230" height="227" alt="<img width="1326" height="864" alt="image" src="https://github.com/user-attachments/assets/d52d65c5-b6b1-41b0-bc19-056f1c0c2d40" />
+
 </p>
 
 <p align="center">
