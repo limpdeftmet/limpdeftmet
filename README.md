@@ -1,4 +1,7 @@
 <img width="645" height="183" alt="Screenshot 2026-04-05 221340" src="https://github.com/user-attachments/assets/2c279a37-15ec-4899-ba16-2a36564eb4d6" />
+
+<details><summary> text </summary>
+text text</summary> </details>
 <!--
 **limpdeftmet/limpdeftmet** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
