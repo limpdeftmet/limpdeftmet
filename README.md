@@ -12,17 +12,13 @@ south park; invincible; disventure camp; total drama; athf; moral orel; word gir
 </h5>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [atabook!!!](https://limpdeftmet.atabook.org/)   ${\color{lightskyblue} 𖹭𖹭𖹭 }$ [@fairypaws](https://github.com/fairypaws)
-<!--
-**limpdeftmet/limpdeftmet** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<p align="center">
+ 𖦹 <img src="https://blinkies.cafe/b/blinkiesCafe-Wp.gif" />
 
- - 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: he/it
-- ⚡ Fun fact: ...
--->
+ <p align="center">
+ <img src="https://blinkies.cafe/b/display/0045-scorpio.gif" /> ꩜
+   <p align="center">
+ 𖦹 <img src="https://blinkies.cafe/b/blinkiesCafe-bD.gif" /> 
+   <p align="center">
+ <img src="https://blinkies.cafe/b/blinkiesCafe-Um.gif" /> ꩜
