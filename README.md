@@ -21,4 +21,4 @@ south park; invincible; disventure camp; total drama; athf; moral orel; word gir
    <p align="center">
  𖦹 <img src="https://blinkies.cafe/b/blinkiesCafe-bD.gif" /> 
    <p align="center">
- <img src="https://blinkies.cafe/b/blinkiesCafe-Um.gif" /> ꩜
+ <img src="https://blinkies.cafe/b/blinkiesCafe-uP.gif" /> ꩜
