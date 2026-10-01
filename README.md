@@ -1,5 +1,7 @@
 
 <img src= "https://blinkie-net.neocities.org/blinkies/Pride/2/aroace.gif" /> <img src= "https://blinkie-net.neocities.org/blinkies/Pride/2/trans.gif" />
+
+<h5 align="center"> 
 <details><summary> dni × </summary> darkship/proship, pro para basic dni </summary> </details> </h5>
  <p align="center">
  <img width="380" height="180" alt="<img width="1230" height="227" alt="<img width="1848" height="588" alt="<img width="864" height="864" <img style='border:10px solid #FFFFFF' src="https://media1.tenor.com/m/EKAXdB_BYhAAAAAC/mikecan-total-drama.gif"/>
