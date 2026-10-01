@@ -17,4 +17,4 @@ south park; invincible; disventure camp; total drama; athf; moral orel; word gir
 <img src= "https://file.garden/ar3ZTaQyJvnIk4_N/ezgif.com-crop.gif?v=1790828294864" /> <img src= "https://file.garden/ar3ZTaQyJvnIk4_N/ezgif.com-crop%20(1).gif?v=1790828442147" /> 
 
   <p align="center">
-    <img width="94" height="50" src="https://adriansblinkiecollection.neocities.org/stamps/e96.gif" /> <img  width="94" height="50" src="https://adriansblinkiecollection.neocities.org/stamps/e118.gif" />
+    <img width="94" height="50" src="https://adriansblinkiecollection.neocities.org/stamps/e96.gif" />  <img  width="94" height="50" src="https://adriansblinkiecollection.neocities.org/stamps/e45.gif" />
