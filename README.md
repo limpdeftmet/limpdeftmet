@@ -12,3 +12,6 @@ south park; invincible; disventure camp; total drama; athf; moral orel; word gir
 </h5>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [atabook!!!](https://limpdeftmet.atabook.org/)   ${\color{lightskyblue} 𖹭𖹭𖹭 }$ [@fairypaws](https://github.com/fairypaws)
+
+ <p align="center">
+<img src= "https://s2.ezgif.com/tmp/ezgif-2114aacd087177fd.gif" />
