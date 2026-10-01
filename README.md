@@ -12,13 +12,3 @@ south park; invincible; disventure camp; total drama; athf; moral orel; word gir
 </h5>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [atabook!!!](https://limpdeftmet.atabook.org/)   ${\color{lightskyblue} 𖹭𖹭𖹭 }$ [@fairypaws](https://github.com/fairypaws)
-
-<p align="center">
- 𖦹 <img src="https://blinkies.cafe/b/blinkiesCafe-Wp.gif" />
-
- <p align="center">
- <img src="https://blinkies.cafe/b/display/0045-scorpio.gif" /> ꩜
-   <p align="center">
- 𖦹 <img src="https://blinkies.cafe/b/blinkiesCafe-bD.gif" /> 
-   <p align="center">
- <img src="https://blinkies.cafe/b/blinkiesCafe-uP.gif" /> ꩜
