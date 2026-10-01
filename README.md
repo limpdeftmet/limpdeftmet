@@ -1,3 +1,5 @@
+
+<img src= "https://blinkie-net.neocities.org/blinkies/Pride/2/aroace.gif" />
 <h5 align="center">
 <details><summary> dni × </summary> darkship/proship, pro para basic dni </summary> </details> </h5>
  <p align="center">
