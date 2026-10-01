@@ -1,5 +1,5 @@
 <h5 align="center"> 
-<img src= "https://blinkie-net.neocities.org/blinkies/Pride/2/aroace.gif" /> <img src= "https://blinkie-net.neocities.org/blinkies/Pride/2/trans.gif" />
+<img src= "https://blinkie-net.neocities.org/blinkies/Pride/2/aroace.gif" /> ⊹ ࣪ ˖ <img src= "https://blinkie-net.neocities.org/blinkies/Pride/2/trans.gif" />
 
 <h5 align="center"> 
 <details><summary> dni × </summary> darkship/proship, pro para basic dni </summary> </details> </h5>
