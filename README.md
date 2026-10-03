@@ -1,5 +1,5 @@
 <h5 align="center"> 
-<details><summary> dni × </summary> darkship/proship, pro para basic dni  
+<details><summary> dni × </summary> darkship/proship, pro para basic dni, honestly if ur problematic or even tolerate ts dni
  
  <img width="150" height="100" src= "https://media1.tenor.com/m/7__zNHEaYRQAAAAd/cody-total-drama-alejandro-total-drama.gif" /> </summary> </details> </h5>
  <p align="center">
