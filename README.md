@@ -9,7 +9,9 @@
 
 <h5 align="center"> 
 <details><summary> interests ₊⊹ </summary> 
-south park, total drama, disventure camp, moral orel, athf, dan vs, roblox, steven universe, most adult cartoons etc! i also love shipping, animating and art in general!  </summary> </details>
+south park, total drama, disventure camp, moral orel, athf, dan vs, roblox, steven universe, most adult cartoons etc! i also love shipping, animating and art in general! 
+ 
+ <img width="150" height="100" src= "https://media1.tenor.com/m/Q3uZBJbcvroAAAAC/disventure-camp-bruno-disventure-camp.gif" /> </summary> </details>
 </h5>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [atabook!!!](https://limpdeftmet.atabook.org/)   ${\color{lightskyblue} 𖹭𖹭𖹭 }$ [@fairypaws](https://github.com/fairypaws)
