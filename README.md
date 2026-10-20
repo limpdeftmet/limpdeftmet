@@ -1,5 +1,5 @@
 <h5 align="center"> 
-<details><summary> dni × </summary> darkship/proship, pro para basic dni, honestly if ur problematic or even tolerate ts dni
+<details><summary> dni × </summary> darkship/proship, propara, no contact paras AND pro contact paras if u associate with any type of paraphile label stay the hell alway from me. basic dni for the rest
  
  <img width="150" height="100" src= "https://media1.tenor.com/m/7__zNHEaYRQAAAAd/cody-total-drama-alejandro-total-drama.gif" /> </summary> </details> </h5>
  <p align="center">
