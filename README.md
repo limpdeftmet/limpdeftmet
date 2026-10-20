@@ -21,3 +21,7 @@ south park, total drama, disventure camp, moral orel, athf, dan vs, roblox, stev
 
   <p align="center">
     <img width="94" height="50" src="https://adriansblinkiecollection.neocities.org/stamps/e96.gif" /> ♡ <img  width="94" height="50" src="https://adriansblinkiecollection.neocities.org/stamps/e45.gif" />
+
+<h5 align="center"> 
+
+<img src="https://file.garden/ar3ZTaQyJvnIk4_N/IMG_4749.gif" />
