@@ -1,7 +1,7 @@
 <h5 align="center"> 
 <details><summary> dni × </summary> darkship/proship, propara, no contact paras AND pro contact paras if u associate with any type of paraphile label stay the hell alway from me. basic dni for the rest
  
- <img width="150" height="100" src= "https://media1.tenor.com/m/7__zNHEaYRQAAAAd/cody-total-drama-alejandro-total-drama.gif" /> </summary> </details> </h5>
+ <img  height="150" src= "https://media1.tenor.com/m/7__zNHEaYRQAAAAd/cody-total-drama-alejandro-total-drama.gif" /> </summary> </details> </h5>
  <p align="center">
  <img width="380" height="180" alt="<img width="1230" height="250" alt="<img width="1848" height="588" alt="<img width="864" height="864" <img style='border:10px solid #FFFFFF' src="https://media1.tenor.com/m/EKAXdB_BYhAAAAAC/mikecan-total-drama.gif"/>
 
