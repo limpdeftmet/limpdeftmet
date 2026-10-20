@@ -24,4 +24,4 @@ south park, total drama, disventure camp, moral orel, athf, dan vs, roblox, stev
 
 <h5 align="center"> 
 
-<img height="250" src="https://file.garden/ar3ZTaQyJvnIk4_N/IMG_4749.gif" />
+<img height="350" src="https://file.garden/ar3ZTaQyJvnIk4_N/IMG_4749.gif" />
