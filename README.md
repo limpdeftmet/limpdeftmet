@@ -17,7 +17,7 @@ south park, total drama, disventure camp, moral orel, athf, dan vs, roblox, stev
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [atabook!!!](https://limpdeftmet.atabook.org/)   ${\color{lightskyblue} 𖹭𖹭𖹭 }$ [@fairypaws](https://github.com/fairypaws)
 
  <p align="center">
-<img src= "https://file.garden/ar3ZTaQyJvnIk4_N/ezgif.com-crop.gif?v=1790828294864" /> ♡ <img src= "https://file.garden/ar3ZTaQyJvnIk4_N/ezgif.com-crop%20(1).gif?v=1790828442147" /> 
+<img src= "https://file.garden/ar3ZTaQyJvnIk4_N/ezgif.com-crop.gif?v=1790828294864" /> ♡ <img src= "https://file.garden/ar3ZTaQyJvnIk4_N/ezgif.com-crop%20(1).gif?v=1790828442147" /> ♡ <img src= "https://file.garden/ar3ZTaQyJvnIk4_N/d7crwxe-f0632690-bc80-4cba-860a-e14a39367520.gif" /> 
 
   <p align="center">
     <img width="94" height="50" src="https://adriansblinkiecollection.neocities.org/stamps/e96.gif" /> ♡ <img  width="94" height="50" src="https://adriansblinkiecollection.neocities.org/stamps/e45.gif" />
