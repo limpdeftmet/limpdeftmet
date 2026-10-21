@@ -1,4 +1,5 @@
 <h5 align="center"> 
+ <a href="https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Flimpdeftmet"><img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Flimpdeftmet&label=%E1%A8%90%E0%B8%85&labelColor=%23f9fad7&countColor=%2355d4c9&style=plastic" /></a>
 <details><summary> dni × </summary> darkship/proship, propara, no contact paras AND pro contact paras if u associate with any type of paraphile label stay the hell alway from me. basic dni for the rest
  
  <img  height="150" src= "https://media1.tenor.com/m/7__zNHEaYRQAAAAd/cody-total-drama-alejandro-total-drama.gif" /> </summary> </details> </h5>
