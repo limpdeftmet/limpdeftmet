@@ -21,6 +21,11 @@
   <p align="center">
     <img height="53" src="https://adriansblinkiecollection.neocities.org/stamps/e96.gif" /> ♡ <img  width="94" height="50" src="https://adriansblinkiecollection.neocities.org/stamps/e45.gif" /> ♡ <img height="52" src="https://file.garden/ar3ZTaQyJvnIk4_N/d7n90mc-c73897d5-cca5-471d-bd52-2d8ab9dd1f04.gif" /> ♡ <img height="52" src="https://file.garden/ar3ZTaQyJvnIk4_N/dip3.png" /> ♡ <img height="52" src="https://file.garden/ar3ZTaQyJvnIk4_N/damien.png" />
 
+    
+ <p align="center"> 
+
+ want stamps like mine check out my collection!
+ https://rentry.co/limpdeftmetstamps
 
 <h5 align="center"> 
 
