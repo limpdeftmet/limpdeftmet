@@ -18,9 +18,9 @@ south park, total drama, disventure camp, moral orel, athf, dan vs, roblox, stev
 
  <p align="center">
 <img src= "https://file.garden/ar3ZTaQyJvnIk4_N/ezgif.com-crop.gif?v=1790828294864" /> ♡ <img src= "https://file.garden/ar3ZTaQyJvnIk4_N/ezgif.com-crop%20(1).gif?v=1790828442147" /> ♡ <img height="52" src= "https://file.garden/ar3ZTaQyJvnIk4_N/d7crwxe-f0632690-bc80-4cba-860a-e14a39367520.gif" /> ♡ <img height="52" src="https://file.garden/ar3ZTaQyJvnIk4_N/d3f9qiy-64c5719c-4ccd-4586-8bd1-0e5b20070da1.png" /> ♡ <img height="52" src="https://file.garden/ar3ZTaQyJvnIk4_N/d3fd9nd-67544f67-ad48-490a-b772-51b726e9e8b1.png" />
-
   <p align="center">
-    <img width="94" height="50" src="https://adriansblinkiecollection.neocities.org/stamps/e96.gif" /> ♡ <img  width="94" height="50" src="https://adriansblinkiecollection.neocities.org/stamps/e45.gif" /> ♡ <img height="52" src="https://file.garden/ar3ZTaQyJvnIk4_N/d7n90mc-c73897d5-cca5-471d-bd52-2d8ab9dd1f04.gif" />
+    <img height="53" src="https://adriansblinkiecollection.neocities.org/stamps/e96.gif" /> ♡ <img  width="94" height="50" src="https://adriansblinkiecollection.neocities.org/stamps/e45.gif" /> ♡ <img height="52" src="https://file.garden/ar3ZTaQyJvnIk4_N/d7n90mc-c73897d5-cca5-471d-bd52-2d8ab9dd1f04.gif" /> ♡ <img height="52" src="https://file.garden/ar3ZTaQyJvnIk4_N/dip3.png" /> ♡ <img height="52" src="https://file.garden/ar3ZTaQyJvnIk4_N/damien.png" />
+
 
 <h5 align="center"> 
 
